@@ -1,0 +1,1 @@
+escrever um livro, podcast, vídeo, conteúdo que tenha anúncios. algo que gira [[receita passiva]] enquanto não estamos a trabalhar

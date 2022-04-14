@@ -1,0 +1,3 @@
+I recently became aware of the existence of [[commonplace book]]s through a [[reddit]] thread. The OP was asking whether [[zettelkasten]] was suitable for them as a [[personal knowledge management]] system, since they weren't a student nor a scholar.
+
+Now, I keep a [[bullet journal]] as a place to store my tasks, events, notes and [[pensamento|thoughts]]. I think everything else belongs in my [[second brain]]

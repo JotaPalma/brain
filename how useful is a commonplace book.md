@@ -1,0 +1,1 @@
+[[commonplace book]]s look like something I would love to keep. filling out notebooks with all sorts of notes, recipes and references is the analog [[personal knowledge management]] dream. but it doesn't seem very useful in today's society. I would much rather keep all my knowledge and notes inside the [[zettelkasten]] and have it be very [[accessible]] at any moment.

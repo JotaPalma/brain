@@ -1,0 +1,1 @@
+Floating-point numbers, with decimal numbers, like -1.25 , 2.39, -12,9
