@@ -1,0 +1,1 @@
+apesar de a [[cultura]] ser universal (num sentido abstrato), existe uma grande variedade e diversidade de regras aceitáveis e na forma de agir, pensar e sentir no seio de uma determinada [[cultura]], os padrões [[cultura|culturais]].

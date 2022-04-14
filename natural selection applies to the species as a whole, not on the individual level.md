@@ -1,0 +1,1 @@
+De acordo com teorias evolutivas como a de [[Charles Darwin]], o processo de seleção natural aplica-se à espécie como um todo, e não a um nível individual, através de mudanças graduais no património genético. O estudo das características resultantes é na [[psicologia evolutiva]], a [[hereditariedade específica]].

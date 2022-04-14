@@ -1,0 +1,1 @@
+ a psicofísica procura encontrar respostas para quão sensíveis são os nossos sentidos. procura entender como a intensidade e força do [[sensação|estímulo]] afetam a reação do recetor. desta investigação surgem os conceitos de [[limiar absoluto]] e [[limiar diferencial]], bem como a [[adaptação sensorial]]

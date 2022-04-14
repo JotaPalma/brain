@@ -1,0 +1,1 @@
+You’re the average of the 5 people you spend the most time with

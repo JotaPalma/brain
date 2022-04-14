@@ -1,0 +1,2 @@
+apesar dos aspetos deste processo (figura/fundo, agrupamento, profundidade e [[constância percetiva]]) serem essenciais para a nossa [[perceção]], deixam espaço para erro. um exemplo perfeito disso são as ilusões de ótica.
+ilusões são [[perceção|perceções]] distorcidas de uma situação. podem ser causadas por fatores físicos ou psicológicos e são resultado de uma captação e interpretação deficiente dos [[sensação|estímulos sensoriais]].

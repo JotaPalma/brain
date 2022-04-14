@@ -1,0 +1,4 @@
+---
+alias: imagination
+tag: definition
+---

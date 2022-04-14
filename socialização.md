@@ -1,0 +1,3 @@
+é necessário que cada indivíduo aprenda, interiorize, partilhe e valorize as orientações do meio social em que se insere. a este processo dá-se o nome de socialização. dela resulta a [[identidade]] social do indivíduo e o [[sentimento]] de pertença.
+
+socialização é o processo através do qual o indivíduo adquire e transmite os elementos socioculturais do seu meio. fala-se de [[socialização primária]] e [[socialização secundária]]

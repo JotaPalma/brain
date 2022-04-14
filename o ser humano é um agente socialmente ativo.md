@@ -1,0 +1,1 @@
+a [[socialização]] pressupõe que o ser humano é um agente socialmente ativo. não se limita a absorver e imitar as regras socioculturais que lhe são impostas. ele pensa, rejeita, ajusta, interpreta e renova o seu ambiente social e o seu património [[cultura|cultural]].

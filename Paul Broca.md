@@ -1,0 +1,2 @@
+Paul Broca (1824-1880) apercebeu-se de uma constante relação entre lesões na região frontal inferior do hemisfério esquerdo e um défice na capacidade de produzir linguagem. A descoberta da área de Broca foi o primeiro grande marco do mapa do [[cérebro]].
+Um paciente com afasia de Broca tem fala lenta, interrompida, pouco articulada ou inexistente, mas conserva a compreensão da linguagem e o significado do discurso.
