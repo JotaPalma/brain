@@ -1,0 +1,1 @@
+TED Talk Daily: How Your [[memory]] Works - - and why [[esquecimento|forgetting]] is totally ok \ Lisa Genova

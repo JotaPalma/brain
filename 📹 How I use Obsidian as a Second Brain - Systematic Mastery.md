@@ -1,0 +1,1 @@
+[Systematic Mastery - How I use Obsidian as a Second Brain](https://youtu.be/uqVx22lo9_4)

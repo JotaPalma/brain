@@ -1,0 +1,1 @@
+[Verbal to Visual - Sketchnoting the Second Brain](https://youtu.be/YY-HMt0v5c4)
