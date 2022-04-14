@@ -1,0 +1,3 @@
+
+
+Na [[genética comportamental]] é importante estudar gémeos, principalmente gémeos monozigóticos, que partilham 100% dos seus [[gene|genes]], ao contrário dos gémeos dizigóticos, que partilham 50%, como qualquer irmão. Como os gémeos são normalmente criados em ambientes semelhantes, contituem estudos muito interessantes. As características mais influenciadas pela [[hereditariedade]] mostram-se mais provavelmente em gémeos monozigóticos que em gémeos dizigóticos. Outro caso de estudo é o de gémeos monozigóticos que foram separados à nascença (ou muito pouco tempo depois), porque têm [[influência do meio|influências do meio]] muito distintas entre eles.

@@ -1,0 +1,1 @@
+codificação de informação é a transformação da informação do meio em representações e códigos. é a forma como adquirimos conhecimento na [[memory|memória]]

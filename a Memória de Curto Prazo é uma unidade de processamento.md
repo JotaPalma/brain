@@ -1,0 +1,1 @@
+a [[short-term memory|MCP]] não é apenas o armazenamento de informação, é uma unidade de processamento, não só da [[memória sensorial|informação sensorial]] como de informação que foi [[recordação de memória|recuperada]] da [[long-term memory|memória de longo prazo]].

@@ -1,0 +1,1 @@
+[[o ser humano é um agente socialmente ativo]], nunca pára de [[learning|aprender]]. desde que nascemos até ao fim da vida, observamos as pessoas à nossa volta e aprendemos os comportamentos e ações, repetimo-los mentalmente até os interiorizarmos e, se encorajados para tal, imitamo-los.

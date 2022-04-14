@@ -1,0 +1,1 @@
+a [[learning]] por modelação tem um papel importante na [[socialização]] do indivíduo. a integração do indivíduo em contextos socioculturais onde este tenha a oportunidade de observar e imitar os pares é significativo para a sua [[learning]] de como viver em sociedade.

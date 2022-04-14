@@ -1,0 +1,1 @@
+Um gene dominante faz com que a característica seja revelada sempre que o gene está presente. Já um gene recessivo só se revela se for emparelhado com outro gene recessivo.

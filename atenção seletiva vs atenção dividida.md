@@ -1,0 +1,3 @@
+a [[attention|atenção]] seletiva é a capacidade de nos focarmos em certos [[sensação|estímulos]] enquanto ignoramos outros. permite fazer tarefas simples sem ser arrebatado por [[sensação|estímulos]] externos
+
+a [[attention|atenção]] dividida é quando tentamos focar os sentidos em mais que um [[sensação|estímulo]] de cada vez, ou quando intercalamos a [[attention|atenção]] com outra tarefa ([[multitasking]])

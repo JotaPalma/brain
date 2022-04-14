@@ -1,0 +1,1 @@
+graças à [[attention|atenção]] uma grande parte dos [[sensação|estímulos]] da [[memória sensorial]] chegam à [[short-term memory|memória de curto prazo]]. a capacidade de Sete da [[short-term memory|MCP]] (sete dígitos, sete palavras, sete elementos distintos) permite memorizar algo desde que consigamos dividir em conjuntos 

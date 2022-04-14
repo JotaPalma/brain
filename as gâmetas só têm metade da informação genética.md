@@ -1,0 +1,1 @@
+As gâmetas (células sexuais, o espermatozóide e o óvulo) contém apenas metade da informação genética do indivíduo devido ao processo de divisão celular chamado meiose. Ou seja, contêm apenas 23 [[cromossoma|cromossomas]]. Quando se unem para formar o zigoto, estes cromossomas unem-se para formar o cariótipo humano, o conjunto de 46 cromossomas, organizados aos pares.

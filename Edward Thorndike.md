@@ -1,0 +1,1 @@
+Edward Thorndike (1871-1949) foi o psicólogo norte-americano responsável pela formulação da [[lei do efeito]]. Como não podia fazer experiências com crianças, decidiu estudar a [[inteligência]] em animais. Efetuou experiências com gatos em caixas-problema.

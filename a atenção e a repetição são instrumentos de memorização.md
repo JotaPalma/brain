@@ -1,0 +1,2 @@
+a [[attention|atenção]] permite a transferência de [[memória sensorial|informação sensorial]] para a [[short-term memory|memória de curto prazo]]. a informação à qual não se presta [[attention|atenção]] é perdida.
+da mesma forma, a informação que é [[spaced repetition|repetida]] acaba por ser cimentada na [[long-term memory|memória de longo prazo]]. a informação não repetida é [[retrieval interrupts forgetting|esquecida]]

@@ -1,0 +1,1 @@
+Na [[genética comportamental]], o estudo de anomalias genéticas visa compreender o funcionamento dos [[gene|genes]] e a sua expressão em [[doenças hereditárias|doenças]] e perturbações. Algumas são causadas por anomalias em apenas [[características mendelianas|um gene]] (como é o caso da trissomia 21), e outras por [[características poligénicas|vários genes]]. 

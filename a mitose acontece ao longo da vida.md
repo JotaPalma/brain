@@ -1,0 +1,1 @@
+[[as gâmetas só têm metade da informação genética]], mas depois de se formar o zigoto, ocorre o processo de divisão celular chamado de [[mitose]], que permite a formação do embrião. Cada célula passa todos os 46 [[cromossoma|cromossomas]] para as células seguintes, desde a formação da célula-mãe (zigoto) até ao fim da vida do indivíduo.
